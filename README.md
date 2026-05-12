@@ -5,7 +5,7 @@ WIP
 [![96iruu.png](https://i.postimg.cc/yNQS3kNc/96iruu.png)](https://postimg.cc/rd4pvyxw)
 
 <p align="center">
-  ⤷ ゛`DuneMixy ᵒʳ TIM`ˎˊ˗ 
+  ⤷ ゛`DuneMixy ᵒʳ TIM ﹠⅋`ˎˊ˗ 
 </p>
 <p align="center">
   ⤷ `prefered Pronouns: They / Them`ˎˊ˗ 
