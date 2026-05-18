@@ -9,7 +9,7 @@ WIP
   ⤷ ゛`DuneMixy ᵒʳ TIM ﹠⅋`ˎˊ˗ 
 </p>
 <p align="center">
-  ⤷ `prefered Pronouns: They / Them | median`ˎˊ˗ 
+  ⤷ `prefered Pronouns: They / Them`ˎˊ˗ 
 </p>
 <p align="center">
   ⤷ ` 9teen `ˎˊ˗ 
